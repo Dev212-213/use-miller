@@ -1,4 +1,0 @@
-## Alexander
-## Inaldo
-## Ingas
-## Luiz
